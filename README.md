@@ -1,1 +1,0 @@
-# PruebaDianostica-Tercero
